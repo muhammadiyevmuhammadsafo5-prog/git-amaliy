@@ -1,1 +1,0 @@
-# mani ikkinchi commitim
